@@ -3,7 +3,7 @@ Repositório Criado para os desafios de códigos realizados no Bootcamp Trainee 
 
 🔗 [Clique aqui pra acessar o certificado](https://www.dio.me/certificate/52527C23/share)
 
-![image](https://cdn270.picsart.com/1f3c7e9c-5ce6-47cc-8ff7-09d7ff5f28a3/409446282006201.png)
+![image](https://hermes.digitalinnovation.one/tracks/12da0c17-5b91-4e81-b6e9-92e3ee3b83f6.png)
 
 ## Autor
 
